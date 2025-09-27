@@ -5,6 +5,6 @@
 - 📫 How to reach me 202211633@std-zuj.edu.jo ...or insta:waleedalbanna55
 
 <!---
-waleedalbanna55/waleedalbanna55 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+waleed al-banna/waleed al-banna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
