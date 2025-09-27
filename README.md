@@ -2,7 +2,7 @@
 - 👀 I’m interested in Development in Education
 - 🌱 I’m currently learning nursing 
 - 💞️ I’m looking to collaborate on It's love, friendship and common to all people.
-- 📫 How to reach me waleedalbanna77@gmail.com ...or insta:albannawaleed
+- 📫 How to reach me 202211633@std-zuj.edu.jo ...or insta:waleedalbanna55
 
 <!---
 waleedalbanna55/waleedalbanna55 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
