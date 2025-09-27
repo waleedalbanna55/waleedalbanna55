@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @waleedalbanna55
+- 👋 Hi, I’m @WALEED ALBANNA
 - 👀 I’m interested in Development in Education
 - 🌱 I’m currently learning nursing 
 - 💞️ I’m looking to collaborate on It's love, friendship and common to all people.
